@@ -1,1 +1,0 @@
-# EVoting.github.io
